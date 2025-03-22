@@ -9,3 +9,5 @@
 <p>Foi um privilégio compartilhar esse tempo com vocês. Sigam em frente com coragem e determinação!</p>
 
 <p>Berg Dantas</p>
+
+<p><i>PS: Não sei se o plano da criação do portfólio irá se manter, mas vocês podem consultar com a coordenação e com o novo professor. </i></p>
